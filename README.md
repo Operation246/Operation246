@@ -1,3 +1,1 @@
-Operation 246
-
-Operation246@proton.me
+feel free to contact the organization with questions or concerns
